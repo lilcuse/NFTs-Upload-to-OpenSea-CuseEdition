@@ -10,4 +10,4 @@ YOUTUBE VIDEO -> Soon...
 10. Click Start button
 
 
-Credits @cloudmaking 
+Twitter @nftcuse
